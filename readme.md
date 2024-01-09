@@ -31,6 +31,7 @@ Page
 5. SPECIFIC SUGGESTIONS FOR SIMPLE SABOTAGE
 
 1. INTRODUCTION
+
 a. The purpose of this paper is to characterize simple sabotage, to outline its possible effects, and to present suggestions for inciting and executing it.
 b. Sabotage varies from highly technical coup de main acts that require detailed planning and the use of specially-trained operatives, to innumerable simple acts which the ordinary individual citizen-saboteur can perform. This paper is primarily concerned with the latter type. Simple sabotage does not require specially prepared tools or equip ment; it is executed by an ordinary citizen who may or may not act individually and without the necessity for active connection with an organized group; and it is carried out in such a way as to involve a minimum danger of injury, detection, and reprisal.
 c. Where destruction is involved, the weapons of the citizen-saboteur are salt, nails, candles, pebbles, thread, or any other materials he might normally be expected to possess as a householder or as a worker in his particular occupation. His arsenal is the kitchen shelf, the trash pile, his own usual kit of tools and supplies. The targets of his sabotage are usually objects to which he has normal and inconspicuous access in everyday life.
@@ -39,6 +40,7 @@ e. This type of activity, sometimes referred to as the "human element," is frequ
 of faulty decisions are normally found in this kind of work and should then devise his sabotage so as to enlarge that "margin for error."
 
 2. POSSIBLE EFFECTS
+
 a. Acts of simple sabotage are occurring throughout Europe. An effort should be made to add to their efficiency, lessen their detectability, and increase their number. Acts of simple sabotage, multiplied by thousands of citizen- saboteurs, can be an effective weapon against the enemy. Slashing tires, draining fuel tanks, starting fires, starting arguments, acting stupidly, short-circuiting electric systems, abrading machine parts will waste materials, man power, and time. Occurring on a wide scale, simple sabotage will be a constant and tangible drag on the war effort of the enemy.
 b. Simple sabotage may also have secondary results of more or less value. Widespread practice of simple sabotage will harass and demoralize enemy administrators and police. Further, success may embolden the citizen-saboteur eventually to find colleagues who can assist him in sabotage of greater dimensions. Finally, the very practice of simple sabotage by natives in enemy or occupied territory may make these individuals identify themselves actively with the United Nations war effort, and encourage them to assist openly in periods of Allied invasion and occupation.
 3. MOTIVATING THE SABOTEUR
@@ -50,97 +52,25 @@ b. Simple sabotage is often an act which the citizen performs according to his o
 (c) More important than (a) or (b) would be to create a situation in which the citizen-saboteur acquires a sense of responsibility and begins to educate others in simple sabotage.
 
 (2) Encouraging Destructiveness
+
 It should be pointed out to the saboteur where the circumstances are suitable, that he is acting in self- defense against the enemy, or retaliating against the enemy for other acts of destruction. A reasonable amount of humor in the presentation of suggestions for simple sabotage will relax tensions of fear.
-(a) The saboteur may have to reverse his think
-ing, and he should be told this in so many words.
-Where he formerly thought of keeping his tools
-sharp, he should now let them grow dull; surfaces
-that formerly were lubricated now should be sanded;
-normally diligent, he should now be lazy and care
-less; and so on. Once he is encouraged to think back
-wards about himself and the objects of his everyday
-life, the saboteur will see many opportunities in his
-immediate environment which cannot possibly be
-seen from a distance. A state of mind should be
-encouraged that anything can be sabotaged.
-(b) Among the potential citizen-saboteurs who
-are to engage in physical destruction, two extreme
-types may be distinguished. On the one hand, there
-is the man who is not technically trained and em
-ployed. This man needs specific suggestions as to
-what he can and should destroy as well as details
-regarding the tools by means of which destruction is
-accomplished.
-(c) At the other extreme is the man who is a
-technician, such as a lathe operator or an automobile
-mechanic. Presumably this man would be able to
-devise methods of simple sabotage which would be
-appropriate to his own facilities. However, this man
-needs to be stimulated to re-orient his thinking in
-the direction of destruction. Specific examples, which
-need not be from his own field, should accomplish
-this.
-(d) Various media may be used to disseminate
-suggestions and information regarding simple sabo
-tage. Among the media which may be used, as the
-immediate situation dictates, are: freedom stations
-or r a d i o T f ^ T ^ ( f l l i l i i i ^ g | p ^ | B A | i c a s t s or leaf
-lets may be directed toward SjSRilr geographic or
-occupational areas, or they may be general in scope.
-Finally, agents may be trained in the art of simple
-sabotage, in anticipation of a time when they may
-be able to communicate this information directly.
+
+(a) The saboteur may have to reverse his thinking, and he should be told this in so many words. Where he formerly thought of keeping his tools sharp, he should now let them grow dull; surfaces that formerly were lubricated now should be sanded; normally diligent, he should now be lazy and careless; and so on. Once he is encouraged to think backwards about himself and the objects of his everyday life, the saboteur will see many opportunities in his immediate environment which cannot possibly be seen from a distance. A state of mind should be encouraged that anything can be sabotaged.
+(b) Among the potential citizen-saboteurs who are to engage in physical destruction, two extreme types may be distinguished. On the one hand, there is the man who is not technically trained and employed. This man needs specific suggestions as to what he can and should destroy as well as details regarding the tools by means of which destruction is accomplished.
+(c) At the other extreme is the man who is a technician, such as a lathe operator or an automobile mechanic. Presumably this man would be able to devise methods of simple sabotage which would be appropriate to his own facilities. However, this man needs to be stimulated to re-orient his thinking in the direction of destruction. Specific examples, which need not be from his own field, should accomplish this.
+(d) Various media may be used to disseminate suggestions and information regarding simple sabotage. Among the media which may be used, as the immediate situation dictates, are: freedom stations or radio, false or official leaflets may be directed toward specific geographic or occupational areas, or they may be general in scope. Finally, agents may be trained in the art of simple sabotage, in anticipation of a time when they may be able to communicate this information directly.
+
 (3) Safety Measures
-(a) The amount of activity carried on by the
-saboteur will be governed not only by the number of
-opportunities he sees, but also by the amount of
-danger he feels. Bad news travels fast, and simple
-sabotage will be discouraged if too many simple
-saboteurs are arrested.
-(b) It should not be difficult to prepare leaflets
-and other media for the saboteur about the choice
-of weapons, time, and targets which will insure the
-saboteur against detection and retaliation. Among
-such suggestions might be the following:
-(1) Use materials which appear to be inno
-cent. A knife or a nail file can be carried nor
-mally on your person; either is a multi-purpose
-instrument for creating damage. Matches, peb
-bles, hair, salt, nails, and dozens of other destruc
-tive agents can be carried or kept in your living
-quarters without exciting any suspicion what
-ever. If you are a worker in a particular trade
-or industry you can easily carry and keep such
-things as wrenches, hammers, emery paper, and
-the like.
-(2) Try to commit acts for which large
-numbers of people could be responsible. For
-instance, if you blow out the wiring in a factory
-at a central fire box, almost anyone could have
-done it. On-the-street sabotage after dark, such
-as you might be able to carry out against a mili
-tary car or truck, is another example of an act
-for which it would be impossible to blame you.
-(3) Do not be afraid to commit acts for
-which you might be blamed directly, so long as
-you do so rarely, and as long as you have a
-plausible excuse: you dropped your wrench
-across an electric circuit because an air raid
-had kept you up the night before and you were
-half-dozing at work. Always be profuse in your
-apologies. Frequently you can "get away" with
-such acts under the cover of pretending stupid
-ity, ignorance, over-caution, fear of being sus
-pected of sabotage, or weakness and dullness
-due to undernourishment.
-(4) After you have committed an act of
-easy sabotage, resist any temptation to wait
-around and see what happens. Loiterers arouse
-suspicion. Of course, there are circumstances
-when it would be suspicious for you to leave. If
-you commit sabotage on your job, you should
-naturally stay at your work.
+
+(a) The amount of activity carried on by the saboteur will be governed not only by the number of opportunities he sees, but also by the amount of danger he feels. Bad news travels fast, and simple sabotage will be discouraged if too many simple saboteurs are arrested.
+(b) It should not be difficult to prepare leaflets and other media for the saboteur about the choice of weapons, time, and targets which will insure the saboteur against detection and retaliation. Among such suggestions might be the following:
+(1) Use materials which appear to be innocent. A knife or a nail file can be carried normally on your person; either is a multi-purpose instrument for creating damage. Matches, pebbles, hair, salt, nails, and dozens of other destructive agents can be carried or kept in your living quarters without exciting any suspicion what ever. If you are a worker in a particular trade or industry you can easily carry and keep such things as wrenches, hammers, emery paper, and the like.
+(2) Try to commit acts for which large numbers of people could be responsible. For instance, if you blow out the wiring in a factory at a central fire box, almost anyone could have done it. On-the-street sabotage after dark, such as you might be able to carry out against a military car or truck, is another example of an act for which it would be impossible to blame you.
+(3) Do not be afraid to commit acts for which you might be blamed directly, so long as you do so rarely, and as long as you have a plausible excuse: you dropped your wrench across an electric circuit because an air raid had kept you up the night before and you were half-dozing at work. Always be profuse in your apologies. Frequently you can "get away" with such acts under the cover of pretending stupidity, ignorance, over-caution, fear of being suspected of sabotage, or weakness and dullness due to undernourishment.
+(4) After you have committed an act of easy sabotage, resist any temptation to wait around and see what happens. Loiterers arouse suspicion. Of course, there are circumstances when it would be suspicious for you to leave. If you commit sabotage on your job, you should naturally stay at your work.
+
 4. TOOLS, TARGETS, AND TIMING
+
 a. The citizen-saboteur cannot be closely controlled.
 Nor is it reasonable to expect that simple sabotage can be
 precisely concentrated on specific types of target according
